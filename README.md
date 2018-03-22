@@ -1,1 +1,1 @@
-# Steves-first-attempt-at-a-Respostory-2
+# Steves-first-attempt-at-a-Respostory-2; Hi, my name is Stephen Eugene Hummer. I am a 60 year young divorced male, living in the state of Washington, in the great country of USA. I live alone in my one bedroom apartment, with my 8 yeear old cat named Bella. I love playing video and computer games. I  also love to build and maintain computers. I am currently on S.S.I, and am looking for part time work, hopefully in the computer feild.
